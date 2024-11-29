@@ -1,6 +1,6 @@
 # Advancing Digital Business Innovation for SMEs through Informatics
 
-*By Heider Jeffer  
+*By Heider Jeffer*
 
 **Proposed Research Focus:** Enabling Digital Transformation and Data-Driven Business Models for Small and Medium Enterprises (SMEs)  
 
