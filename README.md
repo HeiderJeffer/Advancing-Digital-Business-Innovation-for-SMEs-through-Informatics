@@ -70,3 +70,13 @@ This research aligns closely with the mission of the Graduate School of Advanced
 
 This research will provide SMEs with the knowledge and tools needed to achieve digital transformation and business innovation, addressing their unique challenges in integrating advanced technologies. Through rigorous academic research and practical collaboration, the project aims to make a meaningful impact on the digital maturity and competitiveness of SMEs, in line with the objectives of Linnaeus University and GATE.  
 ```
+
+---
+
+“I authorize the processing of my personal data pursuant to art. 13 of Legislative Decree no. 196 of 30 June 2003 - "Personal Data Protection Code" and art. 13 of GDPR 679/16 - "European Regulation on the Protection of Personal Data".	
+
+Heider Jeffer
+
+29th November 29, 2024
+
+---
