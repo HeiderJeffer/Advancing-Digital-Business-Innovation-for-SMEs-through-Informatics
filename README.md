@@ -72,10 +72,13 @@ This research will provide SMEs with the knowledge and tools needed to achieve d
 
 ---
 
-“I authorize the processing of my personal data pursuant to art. 13 of Legislative Decree no. 196 of 30 June 2003 - "Personal Data Protection Code" and art. 13 of GDPR 679/16 - "European Regulation on the Protection of Personal Data".	
-
-Heider Jeffer
-
-29th November 29, 2024
+### Legal Notice:  
+*“I authorize the processing of my personal data pursuant to art. 13 of Legislative Decree no. 196 of 30 June 2003 - ‘Personal Data Protection Code’ and art. 13 of GDPR 679/16 - ‘European Regulation on the Protection of Personal Data’.”*  
 
 ---
+
+*Heider Jeffer*  
+*30th November 2024*  
+
+--- 
+
